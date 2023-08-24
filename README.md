@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @elkhhad000
+- 👋 Hi, I’m @elkhhad000 I am a student at Westchester Academy of International Studies and am studying computer science currently I am hoping to collaborate on my projects
 - 👀 I’m interested in soccer, computers, medicine and many more things
-- 🌱 I’m currently learning computer science 
+- 🌱 I’m currently learning computer science, english I, algebra II, world history and geography, art I, French III, and Biology 
 - 💞️ I’m looking to collaborate on my computer science projects
 - 📫 How to reach me- you can reach me at my email at elkhhad000@mysbisd.org
 
